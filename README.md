@@ -1,6 +1,6 @@
 # K.Saranya
 
-# Hi, I'm K. Saranya! 👋
+# Hi, I'm K.Saranya! 👋
 
 🎓 Computer Science and Engineering Student  
 🏫 Saveetha Engineering College  
